@@ -1,5 +1,6 @@
-## Hi there 👋
-## About Me
+# Hi there 👋
+## Welcome to my page✌️
+### About Me
 - 😁 I’m Sadichha Shakya
 - ✨Currently, I am an IT student passionate about technology and business.
 - 👩‍🎓 I’m currently learning Web Development
