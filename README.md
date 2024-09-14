@@ -1,5 +1,5 @@
 # Hi there 👋
-## Welcome to my page✌️
+## Welcome to my profile✌️
 ### About Me
 - 😁 I’m Sadichha Shakya
 - ✨Currently, I am an IT student passionate about technology and business.
