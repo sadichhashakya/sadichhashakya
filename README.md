@@ -7,8 +7,8 @@
 - 📝 I love designing pages
 - 😎 In my free time I love reading novels and sketching
 ## How to reach me
-[LinkedIn] (https://www.linkedin.com/in/sadichha-shakya-b590972a7/)
-[Mail] (shakyasadichha@gmail.com) 
+[LinkedIn me](https://www.linkedin.com/in/sadichha-shakya-b590972a7/)
+[Mail me](shakyasadichha@gmail.com) 
 
 
 <!--
